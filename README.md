@@ -50,8 +50,8 @@ Aqui estão alguns dos projetos que estou criando na minha jornada:
 
 ## 📫 Como falar comigo
 
-- ✉ *Email:* coloque seu email aqui  
-- 💼 LinkedIn: (quando criar, colocamos aqui)  
+- ✉ *Email:* gustavohmr45@gmail.com
+
 
 ---
 
